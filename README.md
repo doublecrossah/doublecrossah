@@ -19,4 +19,4 @@
 
  ───── ⌞W2I , C+H Freely, Don't copy my skins, be patient I'm busy⌝  . . . [strawpage](https://angelhareza.straw.page)
 
- ──── I will not approach you first, i don't typically go out of my way to meet new people I find it strange, feel free to approach me though i'll talk to you if im on-tab ──
+ ──── I will not approach you first, I don't typically go out of my way to meet new people, feel free to approach me though i'll talk to you if im on-tab ──
