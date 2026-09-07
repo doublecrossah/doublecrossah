@@ -17,7 +17,13 @@
 
 ──  ⌞Basic DNI ──── I block freely⌝  ──
 
- ───── ⌞W2I , C+H Freely, Don't copy my skins, be patient I'm busy⌝  . . . [strawpage](https://angelhareza.straw.page)
+ ───── ⌞W2I , C+H Freely, Don't copy my skins, be patient I'm busy⌝  . . . 
+ 
+ 
+ [strawpage](https://angelhareza.straw.page),
+ 
+ 
+ [carrd](https://doublecrossah.carrd.co/),
 
 
  ⌞I don't support proshipping.⌝ 
