@@ -8,8 +8,7 @@
 ˎˊ˗  . ݁₊ 
 
  
-
- <img width="600" height="600" alt="general-profile-picture (1)" src="https://github.com/user-attachments/assets/30528de1-32e2-4370-a4ac-38a1226da6e0" />
+re-work soon.
 
  
 ## .𖥔 ݁ ˖ ᯓ ꩜ " Ｓｏｍｅｔｉｍｅｓ　ｓｃｉｅｎｃｅ　ｉｓ　ｍｏｒｅ　ａｒｔ　ｔｈａｎ　ｓｃｉｅｎｃｅ. " ˚. ᵎᵎ
