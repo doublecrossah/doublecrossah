@@ -3,23 +3,7 @@
 
 ───˚꩜｡  ＩＮＴＰ　－　ＴＨＥＹ　／　ＳＨＥ　／　ＩＴ ⸝⸝
   
-
-. ݁₊ ⊹  <img width="99" height="56" alt="d986e67-fd721e24-1dbb-4919-87a4-5236356ae7c7" src="https://github.com/user-attachments/assets/de6df59e-0107-4c6f-90ff-37645b9f1c5c" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/d75b08d6-add1-4024-8594-7fefa9fd49ff" /> 
-ˎˊ˗  . ݁₊ 
-
- 
-re-work soon.
-
- 
-## .𖥔 ݁ ˖ ᯓ ꩜ " Ｓｏｍｅｔｉｍｅｓ　ｓｃｉｅｎｃｅ　ｉｓ　ｍｏｒｅ　ａｒｔ　ｔｈａｎ　ｓｃｉｅｎｃｅ. " ˚. ᵎᵎ
+ <img width="99" height="56" alt="d986e67-fd721e24-1dbb-4919-87a4-5236356ae7c7" src="https://github.com/user-attachments/assets/de6df59e-0107-4c6f-90ff-37645b9f1c5c" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/d75b08d6-add1-4024-8594-7fefa9fd49ff" /> 
 
 
-──  ⌞Basic DNI ──── I block freely⌝  ──
-
- ───── ⌞W2I , C+H Freely, Don't copy my skins, be patient I'm busy⌝  . . . 
-
-
- ⌞I don't support proshipping.⌝ 
-
- 
- ──── I will not approach you first, I don't typically go out of my way to meet new people, feel free to approach me though i'll talk to you if im on-tab ──
+THIS IS A WIP! IM REDOING THIS and like.. everything that was linked.. ough
